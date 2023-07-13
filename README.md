@@ -1,0 +1,6 @@
+- 🤠 Happy-go-lucky problem solver 
+- 🤔 Interested in quizzes
+- 😖 Where people see problems, I see an opportunity 🤑 & new project 💼
+- Dwells on AI, ML, Deep Learning & advanced programming language with a coding humour attitude 😋
+- Seek 👁‍🗨 and like researches 💡 on unusual code patterns 👨🏼‍💻 & unstructured data
+- My usual method of coding - "If my code WORKS!!?? <DON'T TOUCH IT 🤫> - By Just Kidding 😜"
